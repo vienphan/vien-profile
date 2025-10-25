@@ -6,6 +6,4 @@ Strategy Director at Nguyen Kim | Passionate about Business Strategy, AI, and De
 - [Learning Journey: CFA, Marketing, AI]
 - [Creative Studio: SheIsPrettyAndHappy]
 ## 📫 Contact
-- LinkedIn: [linkedin.com/in/phanthi-baovien](https://linkedin.com/in/phanthi-baovien)
-# vien-profile
-My professional profile page
+- LinkedIn: [linkedin.com/in/phanthibaovien](https://linkedin.com/in/phanthibaovien)
